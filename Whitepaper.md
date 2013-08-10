@@ -1,4 +1,4 @@
-Global Decentralized Forum WhitePaper
+Global Decentralized Web WhitePaper
 
 ===
 
